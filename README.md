@@ -1,6 +1,6 @@
 # Ida Bailey Allen's Orange and Date Cake
 ![Cake on table](images/orange_date_cake.png)
-## Orange and Date Cake
+## [Orange and Date Cake](https://babel.hathitrust.org/cgi/pt?id=coo1.ark:/13960/t3805nx1f&seq=25)
 
 ### Ingredients
 - 1/2 cup butter
@@ -21,7 +21,7 @@ milk, lastly the flour, baking powder and salt sifted together.
 Beat throughly and bake in two oiled layer cake pans in
 a moderate oven—about 350°F. When cool, fill and frost.
 
-## Filling and Frosting for Orange and Date Cake
+## [Filling and Frosting for Orange and Date Cake](https://babel.hathitrust.org/cgi/pt?id=coo1.ark:/13960/t3805nx1f&seq=25)
 ### Ingredients
 - 2 1/2 cups confectioner's sugar
 - The grated rind of half an orange
